@@ -1,0 +1,2 @@
+# TugasPewaris
+PEWARISANT
